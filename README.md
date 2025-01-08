@@ -1,4 +1,4 @@
-currently just choosing stuff, will organize later !   
+currently just choosing things, will organize later !   
 me when i find some good stuff so now i just have to find other good stuff 👅
 ![1000003759](https://github.com/user-attachments/assets/e54e755d-d66c-469d-8b90-062238ef42db)
 ![1000003758](https://github.com/user-attachments/assets/a0a4e3dc-438a-4bce-8aad-6ad803116780)
