@@ -1,3 +1,3 @@
-wip
-![](https://komarev.com/ghpvc/?username=your-github-username&color=dbb0c2)
-![](https://64.media.tumblr.com/5ee7bc72a82fe9146a29bf5e2d5def40/c3552a1b71530da9-24/s2048x3072/daa01973bc1659bba44f246ed27e0d141d1c0aad.png)
+![1000004098](https://github.com/user-attachments/assets/e5821b5f-ffb6-4aa8-8b95-2bf434370257)
+github is so ass for not letting you color plain text bruh
+![](https://komarev.com/ghpvc/?username=caramelistic&color=747F95&abbreviated=true&label=✮)
